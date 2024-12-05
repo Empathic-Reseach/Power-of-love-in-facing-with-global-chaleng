@@ -55,9 +55,12 @@ And the docx of this proposal is like this :
 
 ![enter image description here](https://i.sstatic.net/HgeQruOy.jpg)
 
+https://1drv.ms/w/s!Ahbmuw9pTocwryTyGnZeklr6YLpx?e=BPk5lL
+
 Alternative link for it is available at below 👇:
+
 ![enter image description here](https://i.sstatic.net/cWo7aCtg.jpg)
 
 https://rentry.co/zohzg8ge
-https://1drv.ms/w/s!Ahbmuw9pTocwryTyGnZeklr6YLpx?e=BPk5lL
+
 
