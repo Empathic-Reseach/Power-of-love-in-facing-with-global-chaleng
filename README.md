@@ -26,3 +26,38 @@ Citations:
 [5] https://www.cambridge.org/core/books/abs/culture-mind-and-brain/ritual-and-religion-as-social-technologies-of-cooperation/3905E78691AA5F8FE6862E1CCE8D5BDE
 [6] https://link.springer.com/article/10.1007/s00146-021-01259-0
 [7] https://www2.ed.gov/documents/ai-report/ai-report.pdf
+
+Also based of the below vidoe 👇:
+![enter image description here](https://i.sstatic.net/GsD4gonQ.jpg)
+https://m.youtube.com/watch?v=O60Ha2woAZI
+
+I have used the genni.ai for creating thee academic paper based if it as you can see below 👇:
+![enter image description here](https://i.sstatic.net/lf1L2N9F.jpg)
+https://jenni.ai/?via=academicenglishnow
+
+And with limited jenni.ai account it has become like this docx file :
+
+![enter image description here](https://i.sstatic.net/XD4H6xcg.jpg)
+
+https://1drv.ms/w/s!Ahbmuw9pTocwryIXZ_AtPEdpKKB2?e=SDIS1P
+
+Also there are some free website like this which give docx file of academic proposal like this:
+
+![enter image description here](https://i.sstatic.net/7oTQgXAe.jpg)
+
+https://huggingface.co/spaces/SoDa12321/Academic_Proposal_generator_As_AI_Compassion
+
+And for this post it's proposal made like this :
+
+![enter image description here](https://i.sstatic.net/ok8kVLA4.jpg)
+
+And the docx of this proposal is like this :
+
+![enter image description here](https://i.sstatic.net/HgeQruOy.jpg)
+
+Alternative link for it is available at below 👇:
+![enter image description here](https://i.sstatic.net/cWo7aCtg.jpg)
+
+https://rentry.co/zohzg8ge
+https://1drv.ms/w/s!Ahbmuw9pTocwryTyGnZeklr6YLpx?e=BPk5lL
+
